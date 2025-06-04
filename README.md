@@ -1,4 +1,4 @@
-16y <br>Cursando D.S<br>
+TPA <br> TPN <br> <br> TPB <br> <br> TDI <br> <br> TAB <br> <br> Alguns desses eu tenho, chuta quais. <br>
 
 
 ## 🌐 Mídia:
