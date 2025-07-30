@@ -1,6 +1,10 @@
-blblbll
+𝐌 + 𝐁
 <br>
-porra
+<br>
+═══════
+<br>
+<br>
+april | intj - 16 '²⁰⁰⁹'
 
 
 ## 🌐 Mídia:
