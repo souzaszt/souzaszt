@@ -1,4 +1,6 @@
-TPA <br> TPN <br> TPB <br> TDI <br> TAB <br> Alguns desses eu tenho, chuta quais. <br>
+blblbll
+<br>
+porra
 
 
 ## 🌐 Mídia:
